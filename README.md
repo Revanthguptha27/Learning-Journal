@@ -1,1 +1,1 @@
-# Learning_journal_Publishment
+# Learning_Journal_Publishment
